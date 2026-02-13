@@ -1,2 +1,2 @@
-# Certificate-And-Achivement
+# Internship-And-Achivement
 Internship Certificate
